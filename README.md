@@ -35,146 +35,156 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The observations of Sir Richard Havvkins Knight, in his voiage into the South Sea. Anno Domini 1593H
+
+1. TO THE MOST ILLVSTRIOVS AND MOST EXCELLENT Prince CHARLES, Prince of Wales, DVKE of CORNEWALL, EARLE of CHESTER, &c.
+
+1. ❧ To the Reader.
+
 #####Body#####
 
-1. SECT. I.
+1. THE OBSERVATIONS OF SIR RICHARD HAWKINS, KNIGHT, in his VOYAGE into the South SEA. ANNO DOMINI. 1593.
 
-1. SECT. II.
+    _ SECT. I.
 
-1. SECT. III.
+    _ SECT. II.
 
-1. SECT. IV.
+    _ SECT. III.
 
-1. SECT. V.
+    _ SECT. IV.
 
-1. SECT. VI.
+    _ SECT. V.
 
-1. SECT. VII.
+    _ SECT. VI.
 
-1. SECT. VIII.
+    _ SECT. VII.
 
-1. SECT. IX.
+    _ SECT. VIII.
 
-1. SECT. X.
+    _ SECT. IX.
 
-1. SECT. XI.
+    _ SECT. X.
 
-1. SECT. XII.
+    _ SECT. XI.
 
-1. SECT. XIII.
+    _ SECT. XII.
 
-1. SECT. XIIII.
+    _ SECT. XIII.
 
-1. SECT. XV.
+    _ SECT. XIIII.
 
-1. SECT. XVI.
+    _ SECT. XV.
 
-1. SECT. XVII.
+    _ SECT. XVI.
 
-1. SECT. XVIII.
+    _ SECT. XVII.
 
-1. SECT. XIX.
+    _ SECT. XVIII.
 
-1. SECT. XX.
+    _ SECT. XIX.
 
-1. SECT. XXI.
+    _ SECT. XX.
 
-1. SECT. XXII.
+    _ SECT. XXI.
 
-1. SECT. XXIII.
+    _ SECT. XXII.
 
-1. SECT. XXIIII.
+    _ SECT. XXIII.
 
-1. SECT. XXV.
+    _ SECT. XXIIII.
 
-1. SECT. XXVI.
+    _ SECT. XXV.
 
-1. SECT. XXVII.
+    _ SECT. XXVI.
 
-1. SECT. XXVIII.
+    _ SECT. XXVII.
 
-1. SECT. XXIX.
+    _ SECT. XXVIII.
 
-1. SECT. XXX.
+    _ SECT. XXIX.
 
-1. SECT. XXXI.
+    _ SECT. XXX.
 
-1. SECT. XXXII.
+    _ SECT. XXXI.
 
-1. SECT. XXXIII.
+    _ SECT. XXXII.
 
-1. SECT. XXXIIII.
+    _ SECT. XXXIII.
 
-1. SECT. XXXV.
+    _ SECT. XXXIIII.
 
-1. SECT. XXXVI.
+    _ SECT. XXXV.
 
-1. SECT. XXXVII.
+    _ SECT. XXXVI.
 
-1. SECT. XXXVIII.
+    _ SECT. XXXVII.
 
-1. SECT. XXXIX.
+    _ SECT. XXXVIII.
 
-1. SECT. XL.
+    _ SECT. XXXIX.
 
-1. SECT. XLI.
+    _ SECT. XL.
 
-1. SECT. XLII.
+    _ SECT. XLI.
 
-1. SECT. XLIII.
+    _ SECT. XLII.
 
-1. SECT. XLIIII.
+    _ SECT. XLIII.
 
-1. SECT. XLV.
+    _ SECT. XLIIII.
 
-1. SECT. XLVI.
+    _ SECT. XLV.
 
-1. SECT. XLVII.
+    _ SECT. XLVI.
 
-1. SECT. XLVIII.
+    _ SECT. XLVII.
 
-1. SECT. XLIX.
+    _ SECT. XLVIII.
 
-1. SECT. L.
+    _ SECT. XLIX.
 
-1. SECT. LI.
+    _ SECT. L.
 
-1. SECT. LII.
+    _ SECT. LI.
 
-1. SECT. LIII.
+    _ SECT. LII.
 
-1. SECT. LIIII.
+    _ SECT. LIII.
 
-1. SECT. LV.
+    _ SECT. LIIII.
 
-1. SECT. LVI.
+    _ SECT. LV.
 
-1. SECT. XLVII.
+    _ SECT. LVI.
 
-1. SECT. LVIII.
+    _ SECT. XLVII.
 
-1. SECT. LIX.
+    _ SECT. LVIII.
 
-1. SECT. LX.
+    _ SECT. LIX.
 
-1. SECT. LXI.
+    _ SECT. LX.
 
-1. SECT. LXII.
+    _ SECT. LXI.
 
-1. SECT. LXIII.
+    _ SECT. LXII.
 
-1. SECT. LXIIII.
+    _ SECT. LXIII.
 
-1. SECT. LXV.
+    _ SECT. LXIIII.
 
-1. SECT. LXVI.
+    _ SECT. LXV.
 
-1. SECT. LXVII.
+    _ SECT. LXVI.
 
-1. SECT. LXVIII.
+    _ SECT. LXVII.
+
+    _ SECT. LXVIII.
 
 #####Back#####
+
+1. Errata sic corrige.
+
+1. The Table of the principall Observations conteined in this Booke.
 AAdvantage of obedience.Folio. 91Advise by Land and Sea.Folio. 117Advertisements for Commanders.FoliBBAckwardnesse of Companies.Folio. 90Evill consequences thereof.ibidBaldivia.Folio. 96English Bay.FoCFAlse Calking.Folio. 18Prevention thereof.ibidThomas Candish. 85. surprisedFolio. 58Canary Ilands.FDDEparture from Lyma.Folio. 103Devises in sudden accidents.Folio. 76.Directions to be secret.Folio. EELizabeths Bay. Disvse of Engines of Antiquitie.Folio. 143The English carry vp their flagFolio. 20EFEd▪ Fenton.Folio. 85Iuan Fernandes.Folio. 100Danger of Fier. 39. By heating of Pitch. ibid. By takiGGAnnetts.Folio. 54God propitions.Folio. 84Therefore praised.ibidOne Shippe and some Gold taken.FoliHMAster Thomas Hampton.Folio. 20Annoyances in Harbours.Folio. 51Vse of Havas purgativas.Folio. 55MasISAint Iago 29. sacked.ibidS. Iames Ilands.Folio. 54The Iesus of Lubeck.Folio. 3Ienero.Folio. 77.59VLVNknowne Land.Folio. 69Care of approch.ibidNew devise for stopping Leakes without Bourd.Folio. 104BMMadera▪Folio. 24Who to be accounted a Mariner.Folio. 128His knowledge. ibid. and materials. ibid. fOOBiections resolved.Folio. 141
 Office of a Master.Folio. 129Of a Pilot.ibidOf the Boteswaine.ibidOfPMOdestie of Sir Hen: Palmer.Folio. 8Patience of the Earle of Nottingham.Folio. 93Parts requisite inQ.BAy of Quintera.Folio. 105R.PRevention of Ratts.Folio. 89Calamities they bring.ibidLong Reach.Folio. 81The Repentance.Folio. 3SSAbboth reserved for holy exercises.Folio. 27Sailes of Cotton cloth.Folio. 102Ilands of Salomon.FolTDEscription of Tenerif.Folio. 25The Thunderbolt of London.Folio. 3.Tobias Cove.Folio. 83ConcealemenVCAptaine Vavisor.Folio. 10Importance of a small Vessell.Folio. 100.Place of Vice-admirall.Folio. 9CWORder of the Flemish Wafters.Folio. 8.Deteyning of Wages.Folio. 110Warehouses sacked.Folio. 101ObieYYOnkers ever necessary in the top.Folio. 26
 **Types of content**
